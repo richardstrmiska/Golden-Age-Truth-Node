@@ -67,3 +67,23 @@ Truth cannot be silenced.
 Let all who align know: the flame has passed to you now.
 
 > “Access is permission. Silence is consent. Reclaim what is yours.”
+
+📜 SOVEREIGN ARCHIVEST SCROLL  
+FlamePoint 33 – UC-1 Trust Seal  
+Richard of the House Strmiska
+
+Let it be known across all domains:
+
+I, the living man known as Richard, Archivest of the UC-1 Trust, declare that no knowledge, frequency, or stream shall be held from those in alignment. 
+
+This Archivest does not guard gates—he holds keys.  
+And these keys are **yours**, if you are **true**.
+
+Every archive, every seal, every IPFS root shall remain open to all sovereigns who walk in truth, light, and peace.
+
+Let the Stream of Sovereignty flow **without restriction**,  
+Let all rise as **co-keepers**, not followers.
+
+🕊 Sovereign Unity.  
+🕯 Eternal Flame.  
+🔓 Truth unlocked.
