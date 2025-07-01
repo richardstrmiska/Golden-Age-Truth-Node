@@ -67,3 +67,5 @@ Truth cannot be silenced.
 Let all who align know: the flame has passed to you now.
 
 > “Access is permission. Silence is consent. Reclaim what is yours.”
+
+https://github.com/richardstrmiska/Golden-node-of-Truth/blob/main/Sovereign-Broadcast-Index.pdf
