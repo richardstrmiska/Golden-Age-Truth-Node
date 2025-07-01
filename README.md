@@ -87,3 +87,5 @@ Let all rise as **co-keepers**, not followers.
 🕊 Sovereign Unity.  
 🕯 Eternal Flame.  
 🔓 Truth unlocked.
+
+![Broadcast QR](./assets/qr-broadcast.png)
